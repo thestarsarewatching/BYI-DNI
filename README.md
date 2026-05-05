@@ -16,6 +16,7 @@
  
 ----- DNI. -----
 
+this is mostly a wip
 - -10yrs, +25yrs.
 - Tr*mp supporters.
 <img width="436" height="436" alt="cbeb3f4c0ff2125629b38df2f4126807" src="https://github.com/user-attachments/assets/ddd7acf2-d676-4e47-8df2-47a57a9924e6" />
