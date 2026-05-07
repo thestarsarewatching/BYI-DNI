@@ -22,7 +22,10 @@
 - People who like astronomy/physics/biology/psychology??!?!?!!?!?
 - Just anyone not on my dni list in general??!?!?!?!?
 
-- Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
+Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
+
+<img width="835" height="420" alt="17c1e58ca78c567fe7042dc8e48a79de" src="https://github.com/user-attachments/assets/ebd445ca-9a58-4cd6-b523-7be2b983a053" />
+
  
 ----- DNI. -----
 
