@@ -11,7 +11,8 @@
 - I love to yap especially about my interests, so please tell me to stfu every once in a while because i could literally nonstop talk all day bro. 
 - I like to joke about my trauma (particularly kms/kys jokes), so if this makes you uncomfortable please tell me.
 - 
-<img width="936" height="387" alt="5751431b9ac61b212b29dc93c3f8ed7e" src="https://github.com/user-attachments/assets/e9393ab8-d7e5-457b-800b-4d471b700ad3" />
+<img width="938" height="477" alt="А ещё я опоздала, но как-то фиолетово" src="https://github.com/user-attachments/assets/a5879d4a-21f8-4893-98e0-9fe6e3db1d78" />
+
  
 ----- PLEASE INT! ------
 
@@ -36,4 +37,6 @@ this is mostly a wip
 - People who joke about real world tragedies.
 - Darkshippers.
 - if I have dni [blank] in my name
-<img width="436" height="436" alt="cbeb3f4c0ff2125629b38df2f4126807" src="https://github.com/user-attachments/assets/ddd7acf2-d676-4e47-8df2-47a57a9924e6" />
+- Standard criteria ofc (below)
+<img width="436" height="436" alt="cbeb3f4c0ff2125629b38df2f4126807" src="https://github.com/user-attachments/assets/b23c7e10-f724-427c-bb75-047933e9234e" />
+
