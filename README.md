@@ -27,6 +27,25 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 
 <img width="835" height="420" alt="17c1e58ca78c567fe7042dc8e48a79de" src="https://github.com/user-attachments/assets/ebd445ca-9a58-4cd6-b523-7be2b983a053" />
 
+----- CHARACTERS ------
+🧸 = fictionkin, doubles and yumes iwc
+🖍️ = (platonic) yume, doubles ffti
+🎧 = simp, yumes and fictkins ffti
+
+- Two Time (Forsaken) 🧸
+- Doll (Murder Drones) 🧸
+- Pursuer (Die of Death) 🧸
+- Meatgirl (Vane Lily) 🧸
+- Cakey (Ghost and Pals) 🧸
+- Chiaki (Danganronpa 2) 🧸🎧
+- Korekiyo (Danganronpa V3) 🧸🎧
+- Gumi (Vocaloid) 🎧
+- SONiKA (Vocaloid) 🎧
+- Sonia (Danganronpa 2) 🎧
+- Eunoia (Dream Game) 🎧
+- Edward (Fundamental Paper Education) 🖍️
+<img width="925" height="420" alt="1000045317" src="https://github.com/user-attachments/assets/dc9b7121-4a0e-42ef-b064-df5302d60ef2" />
+
  
 ----- DNI. -----
 
