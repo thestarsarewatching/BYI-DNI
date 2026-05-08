@@ -28,8 +28,11 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 <img width="835" height="420" alt="17c1e58ca78c567fe7042dc8e48a79de" src="https://github.com/user-attachments/assets/ebd445ca-9a58-4cd6-b523-7be2b983a053" />
 
 ----- CHARACTERS ------
+
 🧸 = fictionkin, doubles and yumes iwc
+
 🖍️ = (platonic) yume, doubles ffti
+
 🎧 = simp, yumes and fictkins ffti
 
 - Two Time (Forsaken) 🧸
