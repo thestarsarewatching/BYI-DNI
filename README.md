@@ -45,6 +45,9 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 - Gumi (Vocaloid) 🎧
 - SONiKA (Vocaloid) 🎧
 - Sonia (Danganronpa 2) 🎧
+- Seltzer Cookie (CRK) 🎧
+- Ash Salt Cookie (CRK) 🎧
+- Ginger (Dandy's World) 🎧
 - Eunoia (Dream Game) 🎧
 - Edward (Fundamental Paper Education) 🖍️
 <img width="925" height="420" alt="1000045317" src="https://github.com/user-attachments/assets/dc9b7121-4a0e-42ef-b064-df5302d60ef2" />
