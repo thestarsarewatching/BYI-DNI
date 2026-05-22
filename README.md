@@ -9,7 +9,7 @@
 - Please don't act weird/flirty with me unless we're moots. It makes me mega uncomfortable.
 - I have huge trust issues due to past people in my life and so can get quite nervous around others, especially mutuals/friends I've never met before.
 - I love to yap especially about my interests, so please tell me to stfu every once in a while because i could literally nonstop talk all day bro. 
-- I like to joke about my trauma (particularly kms/kys jokes), so if this makes you uncomfortable please tell me.
+- I have a rather dark sense of humour and like to joke about my trauma (particularly kms/kys jokes), so if this makes you uncomfortable please tell me.
 - 
 <img width="938" height="477" alt="А ещё я опоздала, но как-то фиолетово" src="https://github.com/user-attachments/assets/a5879d4a-21f8-4893-98e0-9fe6e3db1d78" />
 
