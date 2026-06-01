@@ -56,7 +56,7 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 ----- DNI. -----
 
 this is mostly a wip
-- -10yrs, +25yrs.
+- -12yrs, +25yrs.
 - Tr*mp supporters.
 - Alterhuman/Furry/Yume haters.
 - People who joke about real world tragedies.
