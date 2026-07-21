@@ -66,5 +66,16 @@ if you match my dni criteria I will block you.
 - Racists.
 - Ableists.
 - Misandrists/Misogynists.
-- Homophobes.
+- Homophobes, Transphobes, Xenophobes, Aphobes.
+- Lolicons/Shotacons.
+- Pedophiles, Zoophiles.
+- Pro AI 'art'.
 
+--- THIN ICE. ---
+
+You can interact but I may be wary of you.
+
+- Dandy's World fandom.
+- Forsaken fandom.
+- Countryhumans fandom.
+- Overly religious/political people.(I'm okay with people being devoted to their beliefs, however I draw a line at trying to convert others to those same beliefs.)
