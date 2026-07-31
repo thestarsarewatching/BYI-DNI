@@ -71,7 +71,7 @@ if you match my dni criteria I will block you.
 - Pedophiles, Zoophiles.
 - Pro AI 'art'.
 
---- THIN ICE. ---
+--- IWC. ---
 
 You can interact but I may be wary of you.
 
