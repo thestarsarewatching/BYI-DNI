@@ -84,18 +84,19 @@ You can interact but I may be wary of you.
 
 --- SHIPS. ---
 
-These ships dniuf/dniuid please and thank you.
+These ships either iwc (❔) or dniuf/dniuid (‼️) please and thank you.
 
-- Any problematic ships.
-- Azure X Two Time.
-- 1x X John Doe.
-- 1x X Shedletsky.
-- Itrapped X Chance.
-- Seltzer X Menthol.
-- Nagito X Chiaki.
-- Hajime X Chiaki.
-- Jinshi X Maomao.
+- Any problematic ships ‼️.
+- Azure X Two Time ❔.
+- 1x X John Doe ‼️.
+- 1x X Shedletsky ❔.
+- Itrapped X Chance ❔.
+- Seltzer X Menthol ‼️.
+- Nagito X Chiaki ‼️.
+- Hajime X Chiaki ‼️.
+- All other Chiaki ships ❔.
+- Jinshi X Maomao ‼️.
 
-No hate to any people who ship these btw!! They're just my personal preferences
+No hate to any people who ship these btw!! They're just my personal preferences and if you don't agree that's ok
 
-Literally any other ships feel free to int!!
+Literally any other ships feel free to int!! Im a multishipper at heart I love ships especially rarepairs
