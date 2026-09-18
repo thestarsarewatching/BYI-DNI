@@ -53,7 +53,7 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 - Eunoia (Frozen Soul/Dream Game) 🎧
 - Edward (Fundamental Paper Education) 🖍️
 
-
+doll from md is literally me ok
  
 ----- DNI. -----
 
@@ -70,7 +70,7 @@ if you match my dni criteria I will block you.
 - Misandrists/Misogynists/Anti-Feminists.
 - Homophobes, Transphobes, Xenophobes, Aphobes.
 - Lolicons/Shotacons.
-- Pedophiles, Zoophiles.
+- Pedophiles, Zoophiles, Necrophiles.
 - Pro AI 'art'.
 
 --- IWC. ---
@@ -80,4 +80,22 @@ You can interact but I may be wary of you.
 - Dandy's World fandom.
 - Forsaken fandom.
 - Countryhumans fandom.
-- Overly religious/political people.(I'm okay with people being devoted to their beliefs, however I draw a line at trying to convert others to those same beliefs.)
+- Overly religious/political people. (I'm okay with people being devoted to their beliefs, however I draw a line at trying to convert others to those same beliefs.)
+
+--- SHIPS. ---
+
+These ships dniuf/dniuid please and thank you.
+
+- Any problematic ships.
+- Azure X Two Time.
+- 1x X John Doe.
+- 1x X Shedletsky.
+- Itrapped X Chance.
+- Seltzer X Menthol.
+- Nagito X Chiaki.
+- Hajime X Chiaki.
+- Jinshi X Maomao.
+
+No hate to any people who ship these btw!! They're just my personal preferences
+
+Literally any other ships feel free to int!!
