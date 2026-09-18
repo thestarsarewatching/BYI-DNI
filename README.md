@@ -54,6 +54,8 @@ Omg all of you guys are so cool!?!?!!?!?/??!?!?!?!?!
 - Edward (Fundamental Paper Education) 🖍️
 
 doll from md is literally me ok
+
+"raise your hand if you're doll from md" my hand is RAISED YOUR HONOR
  
 ----- DNI. -----
 
