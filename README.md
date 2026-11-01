@@ -82,6 +82,7 @@ You can interact but I may be wary of you.
 - Dandy's World fandom.
 - Forsaken fandom.
 - Countryhumans fandom.
+- Helluva Boss/Hazbin Hotel fandoms.
 - Overly religious/political people. (I'm okay with people being devoted to their beliefs, however I draw a line at trying to convert others to those same beliefs.)
 
 --- SHIPS. ---
